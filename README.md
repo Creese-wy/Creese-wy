@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...playing game like roguelike or independent on steam,travelling,singing and playing football.
 - 🌱 I’m currently learning ...kaogong
 - 💞️ I’m looking to collaborate on ...playing game
-- 📫 How to reach me ...make me laugh
+- 📫 How to reach me ... my Steam ID is ：76561198419080931
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
